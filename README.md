@@ -1,4 +1,4 @@
-This organisation is for reinventing the global economy and making humanity achieve the the sustainable and millenium development goals as soon as possible as well as preparing the humanity for total collaps due to artificial intelligence or atomic wars!
+This organisation is for reinventing the global economy and making humanity achieve the the sustainable and millenium development goals as soon as possible as well as preparing the humanity for total collaps due to artificial intelligence, atomic wars or suns super nova!
 
 Everybody is welcome to contribute and edit!!
 
