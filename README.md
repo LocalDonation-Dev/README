@@ -1,4 +1,4 @@
-This organisation is for reinventing the global economy and making the world an better place.
+This organisation is for reinventing the global economy and making humanity achieve the the sustainable and millenium development goals as soon as possible.
 
 
 MIT License
