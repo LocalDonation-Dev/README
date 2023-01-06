@@ -1,12 +1,12 @@
 This organisation is for reinventing the global economy and making humanity achieve the the sustainable and millenium development goals as fast as possible as well as preparing the humanity for total collaps due to artificial intelligence, atomic wars or suns super nova!
 
-Everybody is welcome to contribute and edit as well as cloning to adjust it to your local regulations!!
+Everybody is welcome to contribute and edit as well as cloning it to adjust it to your local regulations!!
 
 ❤️
 
 MIT License
 
-Copyright (c) 2022 LocalPetition UG (haftungsbeschränkt)
+Copyright (c) 2023 LocalPetition UG (haftungsbeschränkt)
 
 Permission is hereby granted, free of charge, to any person obtaining a copy
 of this software and associated documentation files (the "Software"), to deal
